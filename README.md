@@ -1,0 +1,2 @@
+Recipe Name: Banana Bread
+Banana Bread is a soft, chewy bread made from mashed bananas. Instead of being bread-like, it actually has the texture of a cake. It originated in America. It became well known around the 1930s and 40s due to the increasing popularity of baking soda and powder. For Banana Bread, you can pair it with many different toppings or add-ins. For example, you could add nuts and chocolate chips. The recipe I'm showing you today allows you to choose your toppings and add-ins.
